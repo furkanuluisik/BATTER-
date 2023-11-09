@@ -1,0 +1,2 @@
+# BATTER-
+bateri çalıonuz bundan
